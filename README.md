@@ -1,1 +1,1 @@
-# iturover 2020 başvuru ödevi. 
+# iturover 2020 
